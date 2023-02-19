@@ -1,2 +1,2 @@
-Sarah Phillips 
+Sarah Phillips
 Boston Bruins
